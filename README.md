@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ComradeCakey
+- 📫 How to reach me - Discord - ComradeCake#2574 - Telegram - @ComradeCake
